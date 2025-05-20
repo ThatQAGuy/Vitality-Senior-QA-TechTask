@@ -1,0 +1,1 @@
+# Vitality-Senior-QA-TechTask
